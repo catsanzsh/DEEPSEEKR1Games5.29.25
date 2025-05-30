@@ -1,0 +1,2 @@
+# DEEPSEEKR1Games5.29.25
+1.0x
